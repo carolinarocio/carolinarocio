@@ -1,2 +1,2 @@
-## Oi! eu sou a Carolina 👋
+## Ei, eu sou a Carolina 👋
 
